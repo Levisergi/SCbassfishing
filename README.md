@@ -38,3 +38,6 @@ Lake Wylie is a more than 12,500-acre lake on the border of North Carolina and S
 
 
 That rounds out our list of top waterbodies in the State of South Carolina according to Bassmaster Elite angler Patrick Walters. Patrick grew up fishing all over his home state and continues to impress fans when he locates fish in these familiar reservoirs. Although they didn’t make the top waterbody list, Patrick did mention a few honorable mentions in South Carolina that are worth mentioning for anyone looking to fish a new waterbody or something off the beaten path.
+
+
+  
