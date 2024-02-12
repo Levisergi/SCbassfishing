@@ -40,4 +40,44 @@ Lake Wylie is a more than 12,500-acre lake on the border of North Carolina and S
 That rounds out our list of top waterbodies in the State of South Carolina according to Bassmaster Elite angler Patrick Walters. Patrick grew up fishing all over his home state and continues to impress fans when he locates fish in these familiar reservoirs. Although they didn’t make the top waterbody list, Patrick did mention a few honorable mentions in South Carolina that are worth mentioning for anyone looking to fish a new waterbody or something off the beaten path.
 
 
-  
+<h1>SC Bass types</h1>
+
+                                     Bass live all around the world, and there are many types of them.
+Many bass really love bushy and shady areas and best time to  fish at early morning at late night. Because they do not like too much sun. The reason why to fish for bass in bushy places is because most little fish live in them. Most bass love spinners, fishing worms, jigs, crankbait and other bass lures. You will get more luck if you can handle to fish in the rain. 
+
+
+<H2>1.Strip Bass </H2>
+
+<img width="318" alt="image" src="https://github.com/Levisergi/levisergi.github.io/assets/159728268/fb9112f1-6a50-4824-9c0b-cdceaf1c1054">
+
+Stripe Bass is one of the top predators in the Chesapeake Bay food web, feeding on both fish and          invertebrates. A average size of a Stripe Bass is 2-3 feet long and weight 10-30 pounds. Right after sunrise it is the best time to fish for stripe bass. Cast more farther to 35 feet. You get more bites if you fish in rain or right after rain or in the rain if you can handle that. 
+
+When it comes to Stripe Bass fishing things like this come in handy. They also like small spinners and flies.
+
+<img width="172" alt="image" src="https://github.com/Levisergi/levisergi.github.io/assets/159728268/c90f1cc3-cf3c-452f-84e8-11897fb2853a">
+
+
+<h2>2.White Bass</h2>
+
+<img width="326" alt="image" src="https://github.com/Levisergi/levisergi.github.io/assets/159728268/809e11cf-b909-477b-9c1d-f77cb972e864">
+
+
+White Bass is found in lakes and rivers and can grow up to 10- 12 inches in length and weight 1 pound. The white bass is an important fish in the aquatic ecosystem. Again right after sunrise and the wee hours is the best time to fish for them. Cast more farther to 30 feet. But when the water gets cooler like most bass they come closer to shore.
+
+That lure below works very well for White Bass. They also like jigs and flies.
+
+<img width="238" alt="image" src="https://github.com/Levisergi/levisergi.github.io/assets/159728268/b9ec445c-0ee1-40f4-bc21-5558aba5f270">
+
+
+<h2>3. Largemouth Bass </h2>
+
+<img width="271" alt="image" src="https://github.com/Levisergi/levisergi.github.io/assets/159728268/b1656e0a-0a7a-4ace-86ed-303ea01ad9a7">
+
+The Largemouth Bass or Micropterus salmonids is the number one freshwater species around the world. An average Largemouth Bass is between 13-20 inches long with weight 1-5 pounds. Fish for them late afternoon and late evening right after sunset. They will stay around 15 feet from shore where it is 8-10 feet deep. They come closer to the shore closer to night when the water is cooler, but when more sun comes they go deeper in the water. 
+
+This is a excellent lure for Large Mouth Bass. They also really love fishing worms, flies and shiny spinners.
+
+<img width="237" alt="image" src="https://github.com/Levisergi/levisergi.github.io/assets/159728268/f0653399-1a6a-48ed-be37-5f0d719bd958">
+
+
+<h2>4. Spotted Bass</h2>
