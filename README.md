@@ -84,6 +84,4 @@ This is a excellent lure for Large Mouth Bass. They also really love fishing wor
 
 <img width="237" alt="image" src="https://github.com/Levisergi/levisergi.github.io/assets/159728268/cc02a542-7d7e-44e5-894f-326bae844f26">
 
-The Spotted Bass has a gold-green body with dark olive mottling that fades to a yellow-white and black belly. Average Spotted Bass is 10-15 inches long and weighs 1-3 pounds. Evening is the best time to fish for them. Cast as far as 45 feet where it is 30 feet deep. They come closer to the shore closer to the evening when the water is cooler. They prefer shady places during the day but if they have no option they will go farther to the deeper part of the body of water.  
-
-This is a very good lure for Spotted Bass. They will also go for small spinners and flies                                                                                bigg
+The Spotted Bass has a gold-green body with dark olive mottling that fades to a yellow-white and black belly. Average Spotted Bass is 10-15 inches long and weighs 1-3 pounds. Evening is the best time to fish for them. Cast as far as 45 feet where it is 30 feet deep. They come closer to the shore closer to the evening when the water is cooler. They prefer shady places during the day but if they have no option they will go farther to the deeper part of the body of water.
