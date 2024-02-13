@@ -42,7 +42,7 @@ That rounds out our list of top waterbodies in the State of South Carolina accor
 
 <h1>SC Bass types</h1>
 
-                                     Bass live all around the world, and there are many types of them.
+Bass live all around the world, and there are many types of them.
 Many bass really love bushy and shady areas and best time to  fish at early morning at late night. Because they do not like too much sun. The reason why to fish for bass in bushy places is because most little fish live in them. Most bass love spinners, fishing worms, jigs, crankbait and other bass lures. You will get more luck if you can handle to fish in the rain. 
 
 
@@ -120,7 +120,7 @@ Smallmouth Bass is a freshwater species and a popular game fish in North America
 
 Size: 46 cm. Native Range: Lake Michigan and Mississippi River basins from Wisconsin and Minnesota south to Gulf; east to western Indiana and eastern Tennessee, South Carolina and more.  Yellow Bass average length is 9-12 inches and with weight of 9-12 ounces. They like to be in cool waters they also will stay next to fallen trees, bushes and more.
 
-     Most Yellow Bass will bite flies like most bass, they also will go for shiny spinners, poppers, and hair bass bugs.
+Most Yellow Bass will bite flies like most bass, they also will go for shiny spinners, poppers, and hair bass bugs.
 
 
 <img width="235" alt="image" src="https://github.com/Levisergi/levisergi.github.io/assets/159728268/6d267fe8-47bf-4155-bdf9-3ba7a96001d8">
