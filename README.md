@@ -85,3 +85,42 @@ This is a excellent lure for Large Mouth Bass. They also really love fishing wor
 <img width="237" alt="image" src="https://github.com/Levisergi/levisergi.github.io/assets/159728268/cc02a542-7d7e-44e5-894f-326bae844f26">
 
 The Spotted Bass has a gold-green body with dark olive mottling that fades to a yellow-white and black belly. Average Spotted Bass is 10-15 inches long and weighs 1-3 pounds. Evening is the best time to fish for them. Cast as far as 45 feet where it is 30 feet deep. They come closer to the shore closer to the evening when the water is cooler. They prefer shady places during the day but if they have no option they will go farther to the deeper part of the body of water.
+
+This is a very good lure for Spotted Bass. They will also go for small spinners and bigger flies
+
+<img width="238" alt="image" src="https://github.com/Levisergi/levisergi.github.io/assets/159728268/864183fd-ce8e-4568-b3b3-98cb1d5f94d1">
+
+<h2>5.Red Eye Bass</h2>
+
+<img width="234" alt="image" src="https://github.com/Levisergi/levisergi.github.io/assets/159728268/71755802-a586-4734-9a9f-082bb88912de">
+
+The Red Eye Bass is a truly unique and interesting species. Its entire range is limited to Alabama, Georgia and small                     areas of Tennessee and South Carolina. The average length of a Red Eye Bass is 8-10 inches and weights to 1-3 pounds. You can fish for Red Eye bass all day because they do not really care but they still will prefer shady areas, but still cast from 10 to 20 feet.  
+       Those below are some lures that Red Eye Bass really like. They also will go for small shiny spinners, flies and lures.
+
+
+<img width="183" alt="image" src="https://github.com/Levisergi/levisergi.github.io/assets/159728268/a573d5cc-66d5-4b69-b53c-de90bcc51ddd">
+
+
+<h2>6.Smallmouth Bass</h2>
+
+
+<img width="404" alt="image" src="https://github.com/Levisergi/levisergi.github.io/assets/159728268/a86a7dc7-a11c-42a3-ad30-518a601bac30">
+
+Smallmouth Bass is a freshwater species and a popular game fish in North America. They are in the sunfish family. An average Smallmouth Bass is 10-12 inches and weight 1-3 pounds but you can even reach 10 or more pounds. They normally like cooler water. Also like all bass they like to swim in the shade during the day, or go where it is deeper down. You would like to fish for them at the wee hours (the early hours of the morning after midnight) and there hours before dusk. It would be better to cast more farther to 20 or 30 feet away from shore.
+          The lure below works prefect for Smallmouth Bass, they also will go for small fishing warms, shiny spinners and bigger flies. 
+
+
+<img width="238" alt="image" src="https://github.com/Levisergi/levisergi.github.io/assets/159728268/71eb3999-3c29-4880-b828-f346e315f855">
+
+
+<h2>2.Yellow Bass </h2>
+
+
+<img width="277" alt="image" src="https://github.com/Levisergi/levisergi.github.io/assets/159728268/85f00e7d-82f5-4bce-a1f8-a73d5d246a4c">
+
+Size: 46 cm. Native Range: Lake Michigan and Mississippi River basins from Wisconsin and Minnesota south to Gulf; east to western Indiana and eastern Tennessee, South Carolina and more.  Yellow Bass average length is 9-12 inches and with weight of 9-12 ounces. They like to be in cool waters they also will stay next to fallen trees, bushes and more.
+
+     Most Yellow Bass will bite flies like most bass, they also will go for shiny spinners, poppers, and hair bass bugs.
+
+
+<img width="235" alt="image" src="https://github.com/Levisergi/levisergi.github.io/assets/159728268/6d267fe8-47bf-4155-bdf9-3ba7a96001d8">
