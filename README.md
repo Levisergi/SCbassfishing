@@ -42,8 +42,8 @@ That rounds out our list of top waterbodies in the State of South Carolina accor
 
 <h1>SC Bass types</h1>
 
-Bass live all around the world, and there are many types of them.
-Many bass really love bushy and shady areas and best time to  fish at early morning at late night. Because they do not like too much sun. The reason why to fish for bass in bushy places is because most little fish live in them. Most bass love spinners, fishing worms, jigs, crankbait and other bass lures. You will get more luck if you can handle to fish in the rain. 
+<h4>Bass live all around the world, and there are many types of them.
+Many bass really love bushy and shady areas and best time to  fish at early morning at late night. Because they do not like too much sun. The reason why to fish for bass in bushy places is because most little fish live in them. Most bass love spinners, fishing worms, jigs, crankbait and other bass lures. You will get more luck if you can handle to fish in the rain.</h4>
 
 
 <H2>1.Strip Bass </H2>
