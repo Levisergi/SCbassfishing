@@ -1,6 +1,7 @@
 <h1>SC Bass Fishing</h1>
 <script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-8165139590931127"
      crossorigin="anonymous"></script>
+     
 <img width="345" alt="image" src="https://github.com/Levisergi/SCbassfishing/assets/159728268/1e3b68f2-e6de-408f-a272-03360b87bf1e">
 
 South Carolina is well known for some of its major reservoirs that commonly hold the Nation’s top bass fishing tournaments. Just in 2020, Bassmaster held an Open event on Lake Hartwell and an Elite Series event on Santee Cooper. We connected with Bassmaster Elite Series angler Patrick Walters and asked his opinion on the top bass fishing waterbodies in his home State of South Carolina based on quality of fish, not necessarily current popularity. Some of them might surprise you! We have listed our top bass fishing lakes in the State as well as a couple honorable mentions. Give a new waterbody a try and make sure you travel with good information and the right tackle and technique using Omnia’s Shop-by-Lake website. Here’s our top bass fishing lakes in South Carolina:
